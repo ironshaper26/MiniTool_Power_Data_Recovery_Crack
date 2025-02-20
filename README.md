@@ -1,0 +1,1 @@
+# MiniTool_Power_Data_Recovery_Crack
